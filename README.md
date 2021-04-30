@@ -5,6 +5,6 @@
 	            D D O S - W I F I - R O O T 
                 
 #
-![STUPID HOUSE](https://github.com/0399obot/Sm5/blob/main/Sm5.png)
+![STUPID HOUSE](https://github.com/0399obot/DDs_Wipi/blob/main/0399obot.png)
 #
  •••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••••
